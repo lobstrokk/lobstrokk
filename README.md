@@ -3,8 +3,8 @@
 #  #Viej..p*!
 
 Mi nombre es **Cristian Linay**, soy un estudiante de tercer año en la Carrera de  Odontología 🦷📚.
-Egresé de Analista Programador Computacional, pero en realidad por aqui no era mi camino :/ ¡NO me gusto del todo! 
-Lo sigo siendo pero en mis tiempos libres xD..
+Egresé de Analista Programador Computacional en el 2016, pero mi tran hobby es Programar y poder complementarlo a futuro con este nuevo proceso académico.  
+
 
 ---
 <p><p align="center">
